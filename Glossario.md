@@ -1,4 +1,4 @@
-**Glossário Avançado de Inteligência Financeira**
+**Glossário de Inteligência Financeira**
 -----------------
 
 **Alfabetização Financeira**
